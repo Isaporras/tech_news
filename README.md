@@ -7,6 +7,10 @@ A continuacion hablare sobre las noticias de tecnologia enfocado en Farandula.
 
 Los artistas, promocionan sus conciertos, canciones, promocionan lineas de ropa y asi llegar a mas gente alrededor del mundo, y asi ser mas reconocidos 
 
+
+Internacionales
+
+A continucacion queiro hablar de como la moneda de venezuela se le va a quitar los ceros ya que su moneda esta muy infravalorda,estos problemas que se estan presentando generan un tipo de disgustos a la poblacion venezolana donde se generan protetas entre otro tipo de cosas, por otro lado venezuela tiene que tener en cuenta que su país es muy rico en petroleo y en biodiversidad en sus planicies y llanuras.
 =======
 <<<<<<< 
 =======
